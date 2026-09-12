@@ -11,7 +11,7 @@
 
 ୭˚. ᵎᵎ Call me Bonkers/Bennet! 𓏻 I usually camp the docks or the PM area, if you don't find me there i'm either in a roleplay or doing something with friends. C+H is encouraged so please interact freely!
 
-###### I'm an So739 ENFJ VELF SANG-PHLEG aCH[I]dEg Slu[A]/I/
+###### I'm a So739 ENFJ VELF SANG-PHLEG aCH[I]dEg Slu[A]/I/
 
 I have plenty of interests, If I feel comfortable enough with you I might say stuff that come out as insensitive so PLEASE correct me when it ends up like that. 
 
