@@ -44,5 +44,4 @@ Favorites:
 
 ──── ୨୧ ────
 
-<img width="498" height="281" alt="image" src="https://github.com/user-attachments/assets/f3922f57-59f4-4847-a270-01b66a23e70a" />
-
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/f5752c21-1047-49fe-8e97-29771f0d174b" />
