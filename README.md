@@ -1,5 +1,5 @@
 ## 𓏻 💥 𝐁𝐨𝐧𝐤𝐞𝐫𝐬 𝐈𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧! ノ 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/d2cf5534-c624-4005-986c-5313840a83fa" />
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/9428ab03-700f-4b45-878d-ebc16bb82191" />
 
 ──── ୨୧ ────
 
@@ -44,4 +44,4 @@ Favorites:
 
 ──── ୨୧ ────
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/f5752c21-1047-49fe-8e97-29771f0d174b" />
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/35783038-14f2-4a52-90db-a6b3267b3ce7" />
